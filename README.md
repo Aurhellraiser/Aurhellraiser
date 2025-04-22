@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aurhellraiser
-- 👀 I’m interested in ... Programming, Cooking (also baking), Litterature, Science. The list is long ! 
-- 🌱 I’m currently learning ... Not learning, but improving what I just like in my interest. But, always willing to help and learn new thing !
+- 👀 I’m interested in ... Programming, Cooking (also baking), Litterature, Science, Music. The list is long ! 
+- 🌱 I’m currently learning ... Learning and improving what I just listed above. But, always willing to help and learn new thing !
 - 💞️ I’m looking to collaborate on ...Programming
 - 📫 How to reach me ...ripinalis2@gmail.com
 - 😄 Pronouns: ...He / Him
